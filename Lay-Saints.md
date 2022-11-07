@@ -14,6 +14,6 @@ But even after that, maybe we could run sainthood causes through a ratio filter.
 
 For sake of argument, say it's 100 to 1. Then, 100 lay saints must be canonized, before 1 clerical or religious saint.
 
-Just to give an example of how off we are from a real life ratio, Pope Francis has canonized 68 saints, only 8 were laity, the rest religious or clergy. We aren't even close to a 1 to 1 ratio of laity to religious/clergy.
+Just to give an example of how far off we are from a real life ratio, Pope Francis has canonized 68 saints during his pontificate, only 8 were laity, the rest religious or clergy. We aren't even close to a 1 to 1 ratio of laity to religious/clergy.
 
 100 years, no religious or clerical saints. It will do us all a lot of good.
